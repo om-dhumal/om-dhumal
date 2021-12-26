@@ -1,5 +1,5 @@
 # Om Dhumal --- @om-dhumal
-#### Hey, This is Om--a higher secondary school student-soon to be an undergrad
+#### Hey, This is Om-- an undergrad
 - newbie
 - learning a lot of cool stuff
 - You can reach me out on my [Instagram](https://www.instagram.com/omdhumal17/) or at dhumal.om@outlook.com
